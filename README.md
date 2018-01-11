@@ -20,7 +20,7 @@ __See the list of goals I want to achieve before I leave MEST__
 Likes | Dislikes
 ------------ | -------------
 Honesty  | Pretense
-Pride | Back-biting
+Integrity | Back-biting
 
 
 ###### Visit my personal page by clicking on the link below
